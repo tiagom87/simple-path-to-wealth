@@ -22,7 +22,7 @@
   - Prioritize freedom over luxury; building wealth provides options.
 - **Mindset Shift:** Aim for financial freedom, not necessarily "getting rich."
 
-![Image: Charlie Munger]([![IMAGE](quiver-image-url/AEBF11F6C174753E0E0704E4C211C267.jpg =678x452)](https://static01.nyt.com/images/2023/11/30/multimedia/29munger-zqch-print5-SUB/29munger-zqch-superJumbo.jpg)
+![Image: Charlie](https://static01.nyt.com/images/2023/11/30/multimedia/29munger-zqch-print5-SUB/29munger-zqch-superJumbo.jpg)
 
 ---
 
@@ -59,7 +59,7 @@
 - **Avoid Panic Selling:** Market downturns are normal; stick to the plan.
 - **Rebalancing Portfolio:** Periodically adjust to maintain your asset allocation.
 
-![Image: Risk game](![IMAGE](quiver-image-url/948F51F0DE140B945BF012E9FF7507FC.jpg =1977x1207))
+![Image: Risk Reward](https://www.investopedia.com/thmb/vNVXYF48u2CJGVeYwhKtlCBdA_4=/750x0/filters:no_upscale():max_bytes(150000):strip_icc()/AchieveOptimalAssetAllocation-01_2-8450dfb785a04b43b234ca4c050396db.png)
 
 ---
 
