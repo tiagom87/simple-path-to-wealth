@@ -22,7 +22,7 @@
   - Prioritize freedom over luxury; building wealth provides options.
 - **Mindset Shift:** Aim for financial freedom, not necessarily "getting rich."
 
-![Image: Charlie Munger](![IMAGE](quiver-image-url/AEBF11F6C174753E0E0704E4C211C267.jpg =678x452))
+![Image: Charlie Munger]([![IMAGE](quiver-image-url/AEBF11F6C174753E0E0704E4C211C267.jpg =678x452)](https://static01.nyt.com/images/2023/11/30/multimedia/29munger-zqch-print5-SUB/29munger-zqch-superJumbo.jpg)
 
 ---
 
