@@ -1,4 +1,4 @@
-# The Simple Path to Wealth by JL Collins
+# The Simple Path to Wealth by JL Collins Summary
 ### Key Takeaways and Strategies for Financial Freedom
 *Summarised on 8th November 2024 by:* Tiago Martins
 
